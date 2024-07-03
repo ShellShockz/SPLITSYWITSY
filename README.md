@@ -1,4 +1,4 @@
-![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/308dbaa9-3940-4086-a15a-a030ef33ca6f)
+![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/72720d00-7e24-4c64-a007-d57d08e843a8)
 
 🍕   - HEY SILLYS!! gender fluid!!
        
