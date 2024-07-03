@@ -1,6 +1,6 @@
-![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/e452ca67-1623-4d26-af53-108dfa2105b0)
-  
-  🍕   - HEY SILLYS!! gender fluid!!
+![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/308dbaa9-3940-4086-a15a-a030ef33ca6f)
+
+🍕   - HEY SILLYS!! gender fluid!!
        
   🦇    - IM USUALLY AFK OR  JUST WATCHING!!
        
