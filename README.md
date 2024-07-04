@@ -10,7 +10,7 @@
 
    🍌    - draw for me spive right now!! 
 
-   🛹 - u can call me split / micheal and im alway there to 
+   🛹 - u can call me split / micheal and im alway there to hang out!!
    
    ![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/f64f678d-d28e-476b-b78e-fd9bcdd2b96c)
 
