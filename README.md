@@ -1,6 +1,5 @@
 ![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/0290a415-c04e-4ff7-8ebe-5b1deb2f7e74)
 
-![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/a379ae2f-25fa-4c80-8c3c-9c457515dd3e)
 - HEY SILLYS!! gender fluid!! i draw much but not alot tho !! (my discord is : jocking_banana)
 
   - IM USUALLY AFK OR  JUST WATCHING!! (my twitter is splits264)
