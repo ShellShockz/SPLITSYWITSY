@@ -10,6 +10,8 @@
 
         - draw for me spive right now!! 
 
+    - sorry for the big things and stuff im still getting used to these editing things !
+      
        - u can call me split / lampert and im alway there to hang out!!
    
    ![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/224bcbf7-44f3-4bbb-8f1f-7113f66ceed4)
