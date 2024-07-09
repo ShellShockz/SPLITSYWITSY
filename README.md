@@ -10,7 +10,7 @@
 
 - sorry for the big things and stuff im still getting used to these editing things and stuff!!
       
-  - u can call me split / micheal and im alway there to hang out
+- u can call me split / micheal and im alway there to hang out
 
 ![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/dd53d1c6-27e5-4ac3-a0f9-543ab2fa25d1)
 
