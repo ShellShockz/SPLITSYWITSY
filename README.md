@@ -1,19 +1,5 @@
-   - HEY SILLYS!! gender fluid!! i draw much but not alot tho !! (my discord is : jocking_banana)
+<p align="center">
 
- - IM USUALLY AFK OR  JUST WATCHING!! (my twitter is splits264)
-        
- - FEEL FREE TO INT!! although i might get axiouse sorry if i do!!
+ HELLOO!! ![image description](https://64.media.tumblr.com/15c117f6bc469f7288f5ca30ca9f66d9/f0fd9f58d6823f0d-92/s75x75_c1/a3e66b3b6f9451dca411ac4d6c76b2deb31bd65c.gifv)
 
- - check out my straw page!! its alws changing and its better than thing thang!!
-
- - draw for me spive right now!! grabs u and throws u arround
-
-- sorry for the big things and stuff im still getting used to these editing things and stuff!!
-      
-- u can call me split / kasper and im alway there to hang
-
-
-  ![image](https://github.com/SPLITSYWITSY/SPLITSYWITSY/assets/168941633/2981d7b6-424c-4efd-ae00-1abd4a248e07)
-
-   
-
+</p>
