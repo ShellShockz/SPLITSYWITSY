@@ -1,5 +1,5 @@
 <p align="center">
-HELLOO!! LOOK AT MY RENTRY my straw is outdated hehee....!!! 
+HELLO BANANA LOVERS!! IM WORKING ON A RENTRY AND STRAW PAGE!!....!!! 
 
 </p>
 
