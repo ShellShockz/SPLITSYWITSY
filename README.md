@@ -2,4 +2,5 @@
 I DRAW DAILY SPIVE (me x bive) WHY DONT U CHECK IT OUT ? - https://x.com/spiveaddict main - https://x.com/jocking_banana 
 </p>
 
-![image description](https://github.com/user-attachments/assets/8a36ac62-98a3-4c90-a274-9d028cc6b5f5)
+
+![Screenshot from 2024-07-29 20-55-09](https://github.com/user-attachments/assets/95d50a10-0ea1-4732-a168-5417b8f0c474)
