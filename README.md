@@ -1,5 +1,5 @@
 <p align="center">
-I DRAW DAILY SPIVE (me x bive) WHY DONT U CHECK IT OUT ? - https://x.com/spiveaddict main - https://x.com/jocking_banana 
+https://rentry.co/ztch9w2o
 </p>
 
 
