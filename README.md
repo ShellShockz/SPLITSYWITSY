@@ -1,8 +1,5 @@
 <p align="center">
-https://rentry.co/ztch9w2o
+<img src="https://github.com/user-attachments/assets/333aa1e2-c5fb-4beb-8f7f-93e35451ad3f" />
+
 </p>
-
-
-![stupid_baby-removebg-preview](https://github.com/user-attachments/assets/ca375ecf-07ba-4053-83d5-dba75bd53cfe)
-
-
+<p align="center">https://fruit-taurs.straw.page.</p>
